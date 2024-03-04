@@ -1,0 +1,1 @@
+# Analiza-sygnalow-psychofizjologicznych-2024
